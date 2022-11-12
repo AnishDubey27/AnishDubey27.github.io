@@ -1,1 +1,1 @@
-https://AnishDubey27.github.io/portfolio
+https://anishDubey27.github.io/portfolio
